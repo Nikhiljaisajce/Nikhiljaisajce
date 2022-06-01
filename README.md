@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning master of computer application
 
-- 📫 How to reach me nikhiljais11k@gmail.com
+- 📫 How to reach me nikhiljais11@gmail.com
 
 - ⚡ Fun fact :- Love to Explore
 
